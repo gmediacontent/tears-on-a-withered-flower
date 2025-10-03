@@ -1,1 +1,2 @@
-# tears-on-a-withered-flower
+# Tears on a Withered Flower
+Un appartement miteux, une dette abyssale, un mariage chaotique. Le quotidien morose de la studieuse Hae-su se résume en un adjectif : misérable. Alors que son cœur se fane, elle fait la rencontre d’un mystérieux jeune homme à la beauté fulgurante prénommé Tae-ha. Le beau ténébreux semble s’intéresser à elle, mais la vertueuse Hae-su ne saurait braver les interdits. Derrière son sourire enjôleur, cet Apollon cacherait-il quelque chose ? Hae-su le laissera-t-elle cueillir son cœur ? Qui pleurera pour cette fleur ?
